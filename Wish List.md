@@ -12,5 +12,5 @@
 * [Ferro rod](https://www.amazon.com/dp/B07VXWDFLD/?coliid=I2MUNNH16F6LWP&colid=38QQGKAFWIZWG&ref_=list_c_wl_lv_ov_lig_dp_it&th=1&psc=1)
 * Tin containers
 * Flint and steel
-* Bushcraft saw
+* Bushcraft folding saw
 * Paracord
